@@ -1,2 +1,16 @@
-# Ke_Qing_ES
-Ke Qing's Engagement Survey Analysis
+![‎0Employee Engagement (2024) ‎001](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/6a45603c-2f24-40e8-b6cd-efee237efbf1)
+![‎0Employee Engagement (2024) ‎002](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/2eb88fda-f97d-49c1-b02a-44d8c47c5c01)
+![‎0Employee Engagement (2024) ‎003](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/001720b8-e809-498c-9b57-d4d21280344c)
+![‎0Employee Engagement (2024) ‎004](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/f88f3d65-613e-4ce4-9e43-230850c8ddc3)
+![‎0Employee Engagement (2024) ‎005](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/fed48159-ae5c-43e3-90a6-1a0ee763e314)
+![‎0Employee Engagement (2024) ‎006](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/b44c9566-adec-46aa-8e84-ce9465393db8)
+![‎0Employee Engagement (2024) ‎007](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/5948392e-0ed9-4f42-a530-672bc3821dd9)
+![‎0Employee Engagement (2024) ‎008](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/1f890175-f2fc-4e94-bb6d-8b6e1dc75625)
+![‎0Employee Engagement (2024) ‎009](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/a1597e12-94e0-4411-8b02-4991d9513de4)
+![‎0Employee Engagement (2024) ‎010](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/54abd337-0b03-469b-b981-cf61608fd39b)
+![‎0Employee Engagement (2024) ‎011](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/4069e54d-521a-47c6-aa67-80bf51702ef4)
+![‎0Employee Engagement (2024) ‎012](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/65228116-713b-4a2a-8e5f-32ac1560e3e8)
+![‎0Employee Engagement (2024) ‎013](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/12426911-d956-45be-9a63-b94b32b8c5f5)
+![‎0Employee Engagement (2024) ‎014](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/2d231117-ab13-439b-b240-c45ca3a2d329)
+![‎0Employee Engagement (2024) ‎015](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/943bc394-a4ef-435d-ada5-7649a2344e4c)
+![‎0Employee Engagement (2024) ‎016](https://github.com/isabhinav/Ke_Qing_ES/assets/130937665/78163571-fe22-42c3-9e92-28d22e5f49d2)
